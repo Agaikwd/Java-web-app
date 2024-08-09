@@ -12,47 +12,47 @@
 through Neat Records at the culmination of the new wave of British heavy metal movement. The album was re-released by Sanctuary Records in 2002.</h3>
 
 <h2>Lyrics</h2>
-<a>Fight, we will fight right
-Living low in a world of our own
-Destined to live right
-We're taking hell as our home
-Burning lives burning
-Asking me for the mercy of god
-Ancient cries crying
-Acting fast upon the way of the dog
-Welcome to hell
-Welcome to hell
-Welcome to hell (hell)
-Kill, we will kill, death
-Masturbating on the deeds we have done
-Hell commands death kill
-Argue not or feel the death of sun
-Burning, lives burning
-Asking me for the mercy of god
-Ancient cries crying
-Acting fast upon the way of the dog
-Welcome to hell
-Welcome to hell
-Welcome to hell
-Welcome to hell
-The Lord's my shepherd, I shall not want
-He maketh me in green pastures to lie
-And leaves me beside the waters in peace
-Leave your souls at his feet
-Kiss the flames, scorn defeat
-Though I walk through the valley of the shadow of death
-I will fear no evil, for thou art with me
-Die, we won't die, live
-Our choice of difference is what you'll never know
-Mortal voids, live, die
-Buried deep beneath the fall of the snow
-Burning lives ending
-Asking me for the mercy of god
-Ancient cries crying
-Acting fast upon the way of the dog
-Welcome to hell
-Welcome to hell
-Welcome to hell
+<a>Fight, we will fight right</br>
+Living low in a world of our own</br>
+Destined to live right</br>
+We're taking hell as our home</br>
+Burning lives burning</br>
+Asking me for the mercy of god</br>
+Ancient cries crying</br>
+Acting fast upon the way of the dog</br>
+Welcome to hell</br>
+Welcome to hell</br>
+Welcome to hell (hell)</br>
+Kill, we will kill, death</br>
+Masturbating on the deeds we have done</br>
+Hell commands death kill</br>
+Argue not or feel the death of sun</br>
+Burning, lives burning</br>
+Asking me for the mercy of god</br>
+Ancient cries crying</br>
+Acting fast upon the way of the dog</br>
+Welcome to hell</br>
+Welcome to hell</br>
+Welcome to hell</br>
+Welcome to hell</br>
+The Lord's my shepherd, I shall not want</br>
+He maketh me in green pastures to lie</br>
+And leaves me beside the waters in peace</br>
+Leave your souls at his feet</br>
+Kiss the flames, scorn defeat</br>
+Though I walk through the valley of the shadow of death</br>
+I will fear no evil, for thou art with me</br>
+Die, we won't die, live</br>
+Our choice of difference is what you'll never know</br>
+Mortal voids, live, die</br>
+Buried deep beneath the fall of the snow</br>
+Burning lives ending</br>
+Asking me for the mercy of god</br>
+Ancient cries crying</br>
+Acting fast upon the way of the dog</br>
+Welcome to hell</br>
+Welcome to hell</br>
+Welcome to hell</br>
 Welcome to hell </a>
 </body>
 </html>
